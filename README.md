@@ -209,4 +209,4 @@ Can You Run it? is offered as a full free version with all features and updates 
 Ready to ensure your PC can handle the latest video games? **Download Can You Run it? today and game without limits!**
 
 ---
-**Last updated:** 2026-11-03 07:36:16 UTC
+**Last updated:** 2026-11-03 15:51:13 UTC
